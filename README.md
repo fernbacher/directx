@@ -1,0 +1,2 @@
+# directx
+microsoft sucks ass
